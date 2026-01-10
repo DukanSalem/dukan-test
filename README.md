@@ -1,7 +1,12 @@
 # dukan
 
 dukansyria.com
+
+
 dukansy.com
+
+dukangee.com
+aldukangee.com
 
 dukana.co
 dukani.app
