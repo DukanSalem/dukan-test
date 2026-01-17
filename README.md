@@ -1,5 +1,16 @@
 # dukan
 
+
+
+
+aamakshop.com
+
+dukanamo.com
+
+dukanamak.com
+
+
+
 dukansyria.com
 
 
