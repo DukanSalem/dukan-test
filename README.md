@@ -1,8 +1,23 @@
 # dukan
 
 
+almhal.com
+
+SawaDukan.com
+
+AmoDukan.com
+
+ShamDukan.com
+
+Dukan.com
+
+dukansuri.com
 
 
+
+
+
+----
 aamakshop.com
 
 dukanamo.com
